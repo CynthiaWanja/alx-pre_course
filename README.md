@@ -1,1 +1,1 @@
-Coding is fum
+Coding is fun
